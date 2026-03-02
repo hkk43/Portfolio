@@ -1,1 +1,1 @@
-Click nutcraker.png :)
+Click nutcraker.png.
